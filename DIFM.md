@@ -8,4 +8,5 @@ layout: post
 ## NU DISCO
 * Typhoon (Phunky Waves Mix) by Cinematic
 * Tony's Wayback Machine - In The Beginning (MiDiMAN Remix)
+* Tritonal - Good Thing (Go Go Bizkitt! Electric Dreams Remix)
 
